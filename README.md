@@ -1,4 +1,4 @@
-# Hi, I'm Ghaidaa 👋
+# Hi, I'm Ghaidaa!
 
 Artificial Intelligence Student | Aspiring AI & Machine Learning Engineer
 
